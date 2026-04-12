@@ -3,7 +3,9 @@ absosulte bot when it comes to tech, im tryna grasp the ropes of it.. besides th
 
 　fun facts:
  - i like buying cds.
- -  - i reallly like grilled cheese. my life goal is to eat 250 grilled cheeses.
+ - mf doom & kanye are my fav music artists
+ - my fav artists are george condo and Basquiat. can i say his name, no.
+ - i reallly like grilled cheese. my life goal is to eat 250 grilled cheeses.
  <details>
 <summary>My favourite unicode characters are (drop down):</summary>
 <ul><li>not in order.</li>
@@ -11,8 +13,6 @@ absosulte bot when it comes to tech, im tryna grasp the ropes of it.. besides th
 <li>U+130B9- 𓂹</li>
 <li>U+130BA- 𓂺</li></ul>
 </details>
-
-
-I **love** rap music **KanYE west & MFDOOM** are my favs but travis scott and others are up there too, check my [rentry](https://rentry.co/incode7) for more!
+for more about me check out my [rentry](https://rentry.co/incode7)
 
 <img src="https://file.garden/aVbTT9lcSQHjl7sw/ealign" width="200"><img src="https://file.garden/aVbTT9lcSQHjl7sw/kevin%20blueee" width="200"><img src="https://file.garden/aVbTT9lcSQHjl7sw/vdsjsvvd" width="200">
