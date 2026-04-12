@@ -5,7 +5,7 @@ absosulte bot when it comes to tech, im tryna grasp the ropes of it.. besides th
  - i like buying cds.
  - mf doom & kanye are my fav music artists
  - my fav artists are george condo and Basquiat. can i say his name, no.
- - i reallly like grilled cheese. my life goal is to eat 250 grilled cheeses.
+ - i reallly like grilled cheese. my life goal is to eat 200 grilled cheeses.
  <details>
 <summary>My favourite unicode characters are (drop down):</summary>
 <ul><li>not in order.</li>
