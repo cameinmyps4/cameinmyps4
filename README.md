@@ -7,4 +7,4 @@ I like buying CD's i own college dropout, late registration, graduation, yeezus,
 
 I **love** rap music **KanYE west & MFDOOM** are my favs but travis scott and others are up there too, check my [rentry](https://rentry.co/incode7) for more!
 
-<img src="https://file.garden/aVbTT9lcSQHjl7sw/ealign" width="300"><img src="https://file.garden/aVbTT9lcSQHjl7sw/ezgif.com-speed.gif" width="300"><img src="https://file.garden/aVbTT9lcSQHjl7sw/ealign" width="300">
+<img src="https://file.garden/aVbTT9lcSQHjl7sw/ealign" width="300"><img src="https://file.garden/aVbTT9lcSQHjl7sw/ezgif.com-speed.gif" width="300">
