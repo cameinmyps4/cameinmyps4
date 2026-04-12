@@ -13,6 +13,6 @@ absosulte bot when it comes to tech, im tryna grasp the ropes of it.. besides th
 <li>U+130B9- 𓂹</li>
 <li>U+130BA- 𓂺</li></ul>
 </details>
-for more about me check out my [discord](https://rentry.co/incode7)
+for more about me check out my rentry -> https://rentry.co/incode7
 
 <img src="https://file.garden/aVbTT9lcSQHjl7sw/ealign" width="200"><img src="https://file.garden/aVbTT9lcSQHjl7sw/kevin%20blueee" width="200"><img src="https://file.garden/aVbTT9lcSQHjl7sw/vdsjsvvd" width="200">
