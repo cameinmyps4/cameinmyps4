@@ -13,6 +13,7 @@ absosulte bot when it comes to tech, im tryna grasp the ropes of it.. besides th
 <li>U+130B9- 𓂹</li>
 <li>U+130BA- 𓂺</li></ul>
 </details>
+
  - im going nowhere in life, i was looking for a job, then i found a job, heaven knows im misserable nowww
  - there aint alot to say about me... uhh
  - i dont like voice chat? or talking in general..?
