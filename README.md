@@ -20,6 +20,6 @@ absosulte bot when it comes to tech, im tryna grasp the ropes of it.. besides th
  - my irl sibling is [here](https://nekoprospekt.xyz/)
  - for more about me check out my [rentry](https://rentry.co/incode7)
 
-<img src="https://file.garden/aVbTT9lcSQHjl7sw/ealign" width="200"><img src="https://file.garden/aVbTT9lcSQHjl7sw/kevin%20blueee" width="200"><img src="https://file.garden/aVbTT9lcSQHjl7sw/vdsjsvvd" width="200">
+<img src="https://file.garden/aVbTT9lcSQHjl7sw/ghsdghsdhgsd" width="200">
 ***
 farewell.
