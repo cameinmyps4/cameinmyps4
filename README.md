@@ -1,5 +1,5 @@
 # yo, im incode7
-absosulte bot when it comes to tech, im tryna grasp the ropes of it.. besides that feel free to hit me up on [discord]() if u wanna ask me something?
+absosulte bot when it comes to tech, im tryna grasp the ropes of it.. besides that feel free to hit me up on [discord](https://discordid.netlify.app/?id=307316970863329283) if u wanna ask me something?
 ***
 　fun facts:
  - i like buying cds.
