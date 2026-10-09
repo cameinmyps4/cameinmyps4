@@ -1,5 +1,5 @@
 # yo, im incode7
-absosulte bot when it comes to tech, im tryna grasp the ropes of it.. besides that feel free to hit me up on [discord](https://discordid.netlify.app/?id=1153763995443011584) if u wanna ask me something?
+absosulte bot when it comes to tech, im tryna grasp the ropes of it.. besides that feel free to hit me up on [discord]() if u wanna ask me something?
 ***
 　fun facts:
  - i like buying cds.
@@ -18,7 +18,6 @@ absosulte bot when it comes to tech, im tryna grasp the ropes of it.. besides th
  - i dont like voice chat? or talking in general..?
  - im christan
  - my irl sibling is [here](https://nekoprospekt.xyz/)
- - for more about me check out my [rentry](https://rentry.co/incode7)
 
 <img src="https://file.garden/aVbTT9lcSQHjl7sw/ghsdghsdhgsd" width="400">
 
