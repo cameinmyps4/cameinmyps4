@@ -1,7 +1,9 @@
-p {
-  white-space: pre;
-}
 
+⠀⠀
+
+⠀⠀
+
+⠀⠀
 <p align="center">
   <img src="./hey.png" width="300">
 </p>
@@ -10,6 +12,8 @@ p {
   <img src="./intro.gif" width="300">
 </p>
 
-p {
-  white-space: pre;
-}
+⠀⠀
+
+⠀⠀
+
+⠀⠀
