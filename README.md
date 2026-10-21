@@ -1,5 +1,5 @@
 <p align="center">
-  <img src="./kanye.png" width="300">
+  <img src="./hey.png" width="300">
 </p>
 
 <p align="center">
