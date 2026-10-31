@@ -4,13 +4,9 @@
 ⠀⠀
 
 ⠀⠀ 
-<p align="center">
-  <img src="./hey.png" width="300">
-</p>
+![](hey.png)
 
-<p align="center">
-  <img src="./intro.gif" width="300">
-</p>
+![](intro.gif)
 
 ⠀⠀
 
