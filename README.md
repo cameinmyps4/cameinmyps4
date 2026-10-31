@@ -4,11 +4,9 @@
 ⠀⠀
 
 ⠀⠀ 
-![](hey.png)
+And it'll be a long time,
 
-![](intro.gif)
-
-⠀⠀
+⠀⠀before you ever see me again
 
 ⠀⠀
 
