@@ -4,10 +4,10 @@
 ⠀⠀
 
 ⠀⠀ 
-And it'll be a long time,
+Don't worry 'bout me,
 
-⠀⠀⠀⠀before you ever see me again
+⠀⠀⠀⠀don't worry 'bout them
 
-⠀⠀
+⠀⠀⠀⠀⠀⠀⠀⠀Just worry 'bout you.
 
-⠀⠀
+⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
